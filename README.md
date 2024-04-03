@@ -9,5 +9,7 @@
 ✙　　　　　　　　nearly　_always_　offtab　/　alttabbed　,　whisper　to　get　my　attention　if　i　dont　reply
 
 ✙　　　　　　　　　　　　　　　**very**　social　&　open　to　chat　　...　　_come　talk　to　me_　:-)
+
+✙　　　　　　　**edit　:**　*i　will　most　likely　hide　you　if　you　have　something　suggestive　in　your　name*
 #
 <sub>**_art　cred　　;　　vamoopy　@　twt_**</sub>
