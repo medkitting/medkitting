@@ -13,6 +13,5 @@
 
 ✙　　　　　　　　　　　　　　　　[send　a　message　on　my　strawpage](https://computercide.straw.page)　if　u　want　:3 
 
-✙　　　　　　　**edit　:**　*i　will　most　likely　hide　you　if　you　have　something　suggestive　in　your　name*
 #
 <sub>**_art　cred　　;　　vamoopy　@　twt_**</sub>
