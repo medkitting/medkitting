@@ -11,7 +11,7 @@
 
 ✙　　　　　　　　　　　　　　　**very**　social　&　open　to　chat　　...　　_come　talk　to　me_　:-)
 
-✙　　　　　　　　　　　　　　　　[send　a　message　on　my　strawpage](https://computercide.straw.page)　if　u　want　:3 
+✙　　　　　　　　　　　　　　　　[send　a　message　on　my　strawpage](https://computercide.straw.page/ponytown)　if　u　want　:3 
 
 #
 <sub>**_art　cred　　;　　vamoopy　@　twt_**</sub>
