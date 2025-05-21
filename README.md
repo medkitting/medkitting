@@ -1,5 +1,5 @@
 # general info ++ pony town
-![v4obo8](https://github.com/medkitting/medkitting/assets/142576835/ddd91f16-7c1b-4ef2-9588-000beb3fc798)
+![edited by me ; original artist wiitchingh0ur@twitter](https://files.catbox.moe/fmaei6.png)
 
 ✙　　　　　　　　　　　**she　her**　　<sup>or</sup>　　they　them　[++]()　　　❛❛　　　　_typically_　at　the　**roblox　area**
 
