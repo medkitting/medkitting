@@ -1,17 +1,35 @@
-# general info ++ pony town
+<p align="center"
+
+![](https://komarev.com/ghpvc/?username=itarinn&color=lightgrey)
+
 ![edited by me ; original artist wiitchingh0ur@twitter](https://files.catbox.moe/fmaei6.png)
 
-✙　　　　　　　　　　　**she　her**　　<sup>or</sup>　　they　them　[++]()　　　❛❛　　　　_typically_　at　the　**roblox　area**
+<p align="center"
 
-✙　　　　　　　　　　　　　　　　_always_　**c**uddle　**+**　**h**ide　　;　　i　have　a　touch　comfort
-
-✙　　　　　　　i　hide　freely　,　[basic　dni　criteria](https://basic-dni.crd.co)　　❛❛　　if　you　have　an　issue　,　just　whisp　2　me
-
-✙　　　　　　　　nearly　_always_　offtab　/　alttabbed　,　whisper　to　get　my　attention　if　i　dont　reply
-
-✙　　　　　　　　　　　　　　　**very**　social　&　open　to　chat　　...　　_come　talk　to　me_　:-)
-
-✙　　　　　　　　　　　　　　　　[send　a　message　on　my　strawpage](https://computercide.straw.page/ponytown)　if　u　want　:3 
+[strawpage](https://computercide.straw.page/ponytown)　　[atabook](medkitted.atabook.org)
 
 #
-<sub>**_art　cred　　;　　vamoopy　@　twt_**</sub>
+#
+
+　
+<p align="center"
+
+**typically　at　the　roblox　area.**　i　also　like　_pjsk,　sth,　crk,　osc,　etc..._
+
+<p align="center"
+
+_cuddle　+　hide_　is　always　welcome　&.　**highly　encouraged.**　i　have　a　touch　comfort!
+
+<p align="center"
+
+**often　off/alt-tabbed.**　_whisper　2　get　my　attention_　if　i　don't　reply
+
+<p align="center"
+
+_i　love　when_　people　int　w/　me　or　want　to　be　my　friend!　**come　talk　to　me!!!**
+
+　
+#
+#
+
+<sub>**art　credit　　:　　wiitchingh0ur　@　twitter**</sub>
