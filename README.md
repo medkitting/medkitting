@@ -6,7 +6,7 @@
 
 <p align="center"
 
-[strawpage](https://computercide.straw.page/ponytown)　　[atabook](medkitted.atabook.org)
+[strawpage](https://computercide.straw.page/ponytown)　　[atabook](https://medkitted.atabook.org)
 
 #
 #
