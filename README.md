@@ -32,4 +32,4 @@ _i　love　when_　people　int　w/　me　or　want　to　be　my　friend!�
 #
 #
 
-<sub>**art　credit　　:　　wiitchingh0ur　@　twitter**</sub>
+<sub>**art　credit　　:　　arujello　@　twitter**</sub>
