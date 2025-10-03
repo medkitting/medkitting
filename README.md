@@ -2,11 +2,11 @@
 
 ![](https://komarev.com/ghpvc/?username=itarinn&color=lightgrey)
 
-![edited by me ; original artist wiitchingh0ur@twitter](https://files.catbox.moe/fmaei6.png)
+![edited by me : original artist arujello@twitter](https://files.catbox.moe/5apfac.png)
 
 <p align="center"
 
-[strawpage](https://computercide.straw.page/ponytown)　　[atabook](https://medkitted.atabook.org)
+(!) [rentry](https://www.rentry.co/computercide)　　[pt strawpage](https://www.computercide.straw.page/ponytown)　　[atabook](https://medkitted.atabook.org)
 
 #
 #
