@@ -1,6 +1,6 @@
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=itarinn&color=lightgrey)
+![](https://komarev.com/ghpvc/?username=itarinn&color=f2dca4)
 
 ![edited by me : original artist arujello@twitter](https://files.catbox.moe/c9634b.png)
 
@@ -13,20 +13,24 @@
 
 　
 <p align="center"
+  
+**typically at the roblox area .**　i also like _pjsk, sth, crk, osc, etc..._ !!!
 
-**typically　at　the　roblox　area.**　i　also　like　_pjsk,　sth,　crk,　osc,　etc..._
+<p align="center"
+  
+_cuddle + hide_ is always welcome &. **highly encouraged!!!**　i have a touch comfort ^_^^^ 
 
 <p align="center"
 
-_cuddle　+　hide_　is　always　welcome　&.　**highly　encouraged.**　i　have　a　touch　comfort!
+**often off/alt-tabbed.**　_whisper 2 get my attention!_　if i don't reply i promise im not ignoring yew,,
 
 <p align="center"
 
-**often　off/alt-tabbed.**　_whisper　2　get　my　attention_　if　i　don't　reply
+_i love when_ people int w/ me!!!　**come talk to me!!! be my friend!!!!!!!**
 
 <p align="center"
 
-_i　love　when_　people　int　w/　me　or　want　to　be　my　friend!　**come　talk　to　me!!!**
+inspo is ok!! pls ask first :-3 
 
 　
 #
