@@ -6,7 +6,7 @@
 
 <p align="center"
 
-[main rentry](https://www.rentry.co/computercide)　　[pt strawpage](https://www.computercide.straw.page/ponytown)　　[atabook](https://medkitted.atabook.org)
+[main rentry](https://www.rentry.co/computercide)　　[pt strawpage](https://www.computercide.straw.page/ponytown)　　[atabook](https://medkitted.atabook.org)　　[guns.lol](https://guns.lol/medkits)
 
 #
 #
