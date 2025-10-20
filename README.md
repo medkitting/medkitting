@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=itarinn&color=f2dca4)
 
-![edited by me : original artist arujello@twitter](https://files.catbox.moe/c9634b.png)
+![edited by me : something i found on pinterest](https://files.catbox.moe/9oprhy.png)
 
 <p align="center"
 
