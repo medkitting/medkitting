@@ -36,4 +36,4 @@ inspo is ok!! pls ask first :-3
 #
 #
 
-<sub>**art　credit　　:　　arujello　@　twitter**</sub>
+<sub>**icon　credit　　:　　purrsuerr　@　twitter**</sub>
