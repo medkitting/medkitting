@@ -40,4 +40,4 @@ inspo is ok!! pls ask first :-)
 #
 #
 
-<sub>**icon　credit　　:　　purrsuerr　@　twitter**</sub>
+<sub>**icon　credit　　:　　weerlana0　@　twitter**</sub>
