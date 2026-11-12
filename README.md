@@ -4,11 +4,11 @@
 
 　
  
-![](https://komarev.com/ghpvc/?username=itarinn&style=for-the-badge&color=brightgreen)
+![](https://komarev.com/ghpvc/?username=itarinn&style=for-the-badge&color=2fbea0)
 
 　
 
-![stamp](https://files.catbox.moe/kctuk7.gif)
+![stamp]([https://files.catbox.moe/kctuk7.gif](https://64.media.tumblr.com/18d9956162370249106a887cd64d12a9/3ee3a9a3941eca7a-84/s100x200/67a4fd379a9b3c3a5ea5ec1ad6197a86711fe134.gif))
 
 　
 
